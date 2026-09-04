@@ -1,0 +1,1 @@
+Ontology-centred counterintelligence tools are used to combat disinformation and cognitive warfare in the psychic and spiritual industry. The ontologies are based on Kabbalistic Sephirot, system dynamics, and other ancient wisdom, as well as modern technologies.
